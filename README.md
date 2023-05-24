@@ -1,2 +1,1 @@
-# zzzzzzzb
-Cracked Lua Scripts
+# Owned By Furry Crackers
